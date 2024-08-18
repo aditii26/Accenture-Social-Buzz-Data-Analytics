@@ -1,1 +1,1 @@
-# ![image](https://github.com/user-attachments/assets/06b06656-b940-4af7-8678-e0b21b889ad4) Accenture-Social-Buzz-Data-Analytics
+#  ![image](https://github.com/user-attachments/assets/2bf37d4c-3c64-42a8-a0eb-1590c87c380d) Accenture-Social-Buzz-Data-Analytics
